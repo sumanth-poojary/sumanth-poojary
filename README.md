@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **sumanthpoojary04@gmail.com**
 
-- ⚡ Fun fact **I think I am a curious monster**
+- ⚡ Fun fact **I think I am a curiousity monster**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
